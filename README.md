@@ -9,3 +9,4 @@ Perfect for restaurants, cafés, hotels, food courts, bakeries, and fast-food bu
 * Perfect for digital menu screens and LED displays
 * No advanced After Effects skills required
 * Great for promotional videos and social media
+Purchase Link: https://3107038265484.gumroad.com/l/vdnsd
